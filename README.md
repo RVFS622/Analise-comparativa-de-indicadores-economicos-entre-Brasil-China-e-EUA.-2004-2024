@@ -1,0 +1,1 @@
+# Analise-comparativa-de-indicadores-economicos-entre-Brasil-China-e-EUA.-2004-2024
